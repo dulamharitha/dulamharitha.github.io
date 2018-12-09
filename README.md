@@ -1,2 +1,0 @@
-# dulamharitha.github.io
-website
